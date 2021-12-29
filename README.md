@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **qdangdo@gmail.com**
 
-- ⚡ Fun fact **I have a BS in Aerospace Engineering!**
+- ⚡ Fun fact **I have a BS in Aerospace Engineering from the University of Notre Dame!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
